@@ -1,4 +1,4 @@
-
+instant Scripts for dandy's world is the best dandy's world Script, featuring speed and instant win. Safe and powerful for all your needs.
 
 
 
